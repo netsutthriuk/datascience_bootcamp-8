@@ -7,4 +7,4 @@ My data portfolio for data analyst role
 
 
 
-Yoy can find me on LinkedIn: https://www.linkedin.com/in/netsutthiruk/
+You can find me on LinkedIn: https://www.linkedin.com/in/netsutthiruk/
